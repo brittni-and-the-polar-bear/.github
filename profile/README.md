@@ -1,1 +1,1 @@
-# Welcome to Brittni and the Polar Bear!
+# Welcome to brittni and the polar bear!
