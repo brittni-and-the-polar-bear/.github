@@ -59,8 +59,9 @@ representative at an online or offline event.
 ## Enforcement
 
 Instances of abusive, harassing, or otherwise unacceptable behavior may be
-reported to the community leaders responsible for enforcement
-by submitting a Linktree contact form to
+reported to the community leaders responsible for enforcement at
+[support@brittniandthepolarbear.com](mailto:support@brittniandthepolarbear.com).
+Reports may also be submitted via a Linktree contact form to
 [azurepolarbear](https://tr.ee/iLSmB2LPGZ) or
 [brittni watkins](https://tr.ee/UCrJ7zyq2o).
 All complaints will be reviewed and investigated promptly and fairly.
